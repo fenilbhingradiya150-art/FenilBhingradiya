@@ -72,5 +72,5 @@ and improving one step at a time.
 
 ### 🤝 Connect With Me
 
-- LinkedIn: linkedin.com/in/fenil-bhingradiya
+- LinkedIn: [linkedin.com/in/fenil-bhingradiya](https://www.linkedin.com/in/fenil-bhingradiya-95253b428/)
 - Email: fenilbhingradiya150@gmail.com
